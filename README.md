@@ -19,9 +19,10 @@ On this day, we moved to the auditorium as per our lecture schedule. Our respect
 
 ![Image](https://github.com/user-attachments/assets/68659d7d-a702-4811-b290-9c5f0f8c6689)
 
-The first lecture was on ‘Universal Human Values’ was delivered by Dr. Priya Darshini ma’am. It was full of understanding and enjoyment. She explained three core stages: Right Understanding, Relationships, and Physical Facility. We asked some questions related to emotions, and she responded very thoughtfully. We truly enjoyed the entire session.
+The first lecture was on ‘Universal Human Values’ was delivered by Dr. Priya Darshini ma’am. It was full of understanding and enjoyment. She explained three core stages: Right Understanding, Relationships, and Physical Facility. We asked some choiceto emotions, and she responded very thoughtfully. We truly enjoyed the entire session.
 After that, we were introduced to the Satya Scholarship Program and participation was left to our choice.
-
-
-The next lecture was conducted by Dr. Arwind Dhingra sir. He was very energetic on stage and did some fun activities with us. We played various physical games, and the winners were rewarded with chocolates. 
+our
+break lecture was conducted by Dr. Arwind Dhingra sir. He was very energetic on stage and did some fun activities with us. We played various physical games, and the winners were rewarded with chocolates. 
 After finishing the session, we went to the canteen and ate some snacks. We also took a walk around the college campus and enjoyed our break time.
+Later, we returned to our classrooms according to our test schedule. We had tests in Math and English, which were conducted by our seniors. We completed them and submitted our papers.
+In this way, we wrapped up our day and returned home, full of new experience. 
