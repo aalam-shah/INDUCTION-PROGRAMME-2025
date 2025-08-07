@@ -14,4 +14,8 @@ We entered the auditorium and sat in our seats according to our branches. The fi
 After the session, we left the auditorium, and the volunteers guided us to different labs. We saw how real-life engineering works, and it gave us hands-on exposure.Laterally this day was my memorable.
 
 
-## DAY 2
+## DAY 2 ( Aug 01,2025)
+On this day, we moved to the auditorium as per our lecture schedule. Our respected HoD ma’am led us in a prayer to the Almighty for a good beginning and a bright future. We all closed our eyes and recited God's name together. After the prayer, she shared important college instructions and guidelines.
+
+
+
