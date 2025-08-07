@@ -51,7 +51,7 @@ Professor Jaswant Singh conducted the lecture. He asked us some questions, and w
 
 After completing the lecture, we all returned to our homes, filled with new experiences and learning.
 
-## DAY 4 (Aug 5,2025)
+## DAY 4 (Aug 05,2025)
 On this day, our class schedule was changed, and we went to college in the afternoon. A faculty member took our class and taught us about Motorsports. 
 
 ![Image](https://github.com/user-attachments/assets/bf7123a6-bf6c-4893-84ac-83fda9f3edaf)
@@ -64,7 +64,7 @@ There, Shaffy Makkar ma’am (Vice Principal) introduced herself to us. She deli
 
 Honestly speaking, it was a beautiful and insightful lecture. After the session, we headed back to our homes with new knowledge and experiences.
 
-## DAY 5 (Aug 6,2025) 
+## DAY 5 (Aug 06,2025) 
 
 I was very curious about my induction program and college , so I went to the auditorium and took my seat. The first lecture was conducted by Dr. Parminder Singh ,and it was about student welfare. He informed us about various college facilities such as the library, physical activities, student events, and scholarships.
 
@@ -72,11 +72,24 @@ I was very curious about my induction program and college , so I went to the aud
 
 After that, Manpreet Singh delivered a wonderful lecture on fitness. As engineering students, he emphasized that we must take care of our health. We even went up on stage to do push-ups, which was one of the most exciting moments of the day! We asked him several questions about fitness, and he answered each one kindly and helpfully.
 
-
+![Image](https://github.com/user-attachments/assets/52a7321c-b630-44a1-9d16-d542808177cf)
 
 Later, a 3rd-year NCC student gave a lecture about the value of NCC. Then, Brigadier P.S. Cheema Sir received a warm welcome from us. He is a Lieutenant General, and it was inspiring to see him in full uniform. He delivered a powerful and valuable speech, and we even participated in some brain games during his session. We listened carefully and enjoyed it thoroughly.
 
+![Image](https://github.com/user-attachments/assets/befaba6e-8fb5-4af3-86e2-7090203f54e3)
+
+
 After that, we had our lunch break and enjoyed eating together. Then I went to the admission cell to apply for my ID card.
 It was truly a great and memorable day
+
+DAY 6 ( Aug 07,2025)
+
+I was ready for college and entered the classroom according to our schedule. It was our first P2P (peer-to-peer) lecture, and the topic was “Basics of C++”, delivered by our volunteer instructors. 
+We learned new concepts related to coding, and it was my first experience writing and running my own code in C++. It felt exciting and motivating. We were also given some homework to practice what we learned.
+
+The second lecture was conducted by Nisha ma’am. She conducted our class on communication skills. During this session, we all introduced ourselves one by one at the front of the class. We learned the differences between similar words, such as aesthetic vs. classic and hearing vs. listening. We also shared our strengths and weaknesses with her, which helped us reflect on ourselves and improve our speaking confidence. 
+
+After the lecture ended, we took our lunch break.
+
 
 
