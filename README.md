@@ -37,4 +37,10 @@ On stage, we were introduced to the Cosmic Club and encouraged to become members
 Next, Dr. Priya Darshini ma’am took our class. We asked her a few questions during the session. The topic was social care and understanding , where we learned the difference between happiness and excitement. Although some students found it boring, many of us enjoyed the session and found it meaningful.
 Later, a 4th-year Mechanical Engineering student delivered an animated and engaging lecture titled ‘Engineering On The Edge’, focused on Motorsports. It was an incredible and inspiring session.
 
+![Image](https://github.com/user-attachments/assets/d7ec51be-3c37-4548-b37a-641bb453abf1)
 
+Afterward, we moved to the canteen and enjoyed our break time. Then, I got ready for my Mechanical Engineering class, which was scheduled in the ME Semester Hall. We all reached on time and took our seats.
+
+Professor Jaswant Singh conducted the lecture. He asked us some questions, and we responded eagerly. We also introduced ourselves to him. 
+
+After completing the lecture, we all returned to our homes, filled with new experiences and learning.
