@@ -26,3 +26,15 @@ break lecture was conducted by Dr. Arwind Dhingra sir. He was very energetic on 
 After finishing the session, we went to the canteen and ate some snacks. We also took a walk around the college campus and enjoyed our break time.
 Later, we returned to our classrooms according to our test schedule. We had tests in Math and English, which were conducted by our seniors. We completed them and submitted our papers.
 In this way, we wrapped up our day and returned home, full of new experience. 
+
+## DAY 3 ( Aug 04,2025)
+I was very curious and excited about my college class, so I reached the college at 8:30 AM. I breathed in the fresh environment of the campus and then went to the auditorium.
+
+Our respected Dr. Harpreet Kaur (HoD ma’am) gave us a warm welcome. As a tradition, we covered our heads and closed our eyes to recite God’s name. This marked the beginning of our day.
+
+On stage, we were introduced to the Cosmic Club and encouraged to become members. We were also guided about its purpose and how to join. After that, we had a session on using GitHub, where we learned its basic usage and importance in engineering.
+
+Next, Dr. Priya Darshini ma’am took our class. We asked her a few questions during the session. The topic was social care and understanding , where we learned the difference between happiness and excitement. Although some students found it boring, many of us enjoyed the session and found it meaningful.
+Later, a 4th-year Mechanical Engineering student delivered an animated and engaging lecture titled ‘Engineering On The Edge’, focused on Motorsports. It was an incredible and inspiring session.
+
+
