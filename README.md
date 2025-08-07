@@ -44,3 +44,10 @@ Afterward, we moved to the canteen and enjoyed our break time. Then, I got ready
 Professor Jaswant Singh conducted the lecture. He asked us some questions, and we responded eagerly. We also introduced ourselves to him. 
 
 After completing the lecture, we all returned to our homes, filled with new experiences and learning.
+
+## DAY 4 (Aug 5,2025)
+On this day, our class schedule was changed, and we went to college in the afternoon. A faculty member took our class and taught us about Motorsports. It was truly mind-blowing, especially as we learned about the functioning of various parts in Formula cars, their engines, stability, and the importance of driver health and performance parameters . We were also introduced to a workshop related to Motorsports. After the session, we moved to the auditorium.
+
+There, Shaffy Makkar ma’am (Vice Principal) introduced herself to us. She delivered a wonderful lecture on millets. We learned about their benefits, their impact on body health and digestion, and discussed the pros and cons of including millets in our diet. She asked us questions during the session, and we answered enthusiastically.
+
+Honestly speaking, it was a beautiful and insightful lecture. After the session, we headed back to our homes with new knowledge and experiences.
