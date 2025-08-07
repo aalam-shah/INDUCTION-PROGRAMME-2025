@@ -17,5 +17,11 @@ After the session, we left the auditorium, and the volunteers guided us to diffe
 ## DAY 2 ( Aug 01,2025)
 On this day, we moved to the auditorium as per our lecture schedule. Our respected HoD ma’am led us in a prayer to the Almighty for a good beginning and a bright future. We all closed our eyes and recited God's name together. After the prayer, she shared important college instructions and guidelines.
 
+![Image](https://github.com/user-attachments/assets/68659d7d-a702-4811-b290-9c5f0f8c6689)
+
+The first lecture was on ‘Universal Human Values’ was delivered by Dr. Priya Darshini ma’am. It was full of understanding and enjoyment. She explained three core stages: Right Understanding, Relationships, and Physical Facility. We asked some questions related to emotions, and she responded very thoughtfully. We truly enjoyed the entire session.
+After that, we were introduced to the Satya Scholarship Program and participation was left to our choice.
 
 
+The next lecture was conducted by Dr. Arwind Dhingra sir. He was very energetic on stage and did some fun activities with us. We played various physical games, and the winners were rewarded with chocolates. 
+After finishing the session, we went to the canteen and ate some snacks. We also took a walk around the college campus and enjoyed our break time.
