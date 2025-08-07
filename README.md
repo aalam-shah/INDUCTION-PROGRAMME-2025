@@ -68,7 +68,11 @@ Honestly speaking, it was a beautiful and insightful lecture. After the session,
 
 I was very curious about my induction program and college , so I went to the auditorium and took my seat. The first lecture was conducted by Dr. Parminder Singh ,and it was about student welfare. He informed us about various college facilities such as the library, physical activities, student events, and scholarships.
 
+![Image](https://github.com/user-attachments/assets/471ae686-5592-4ffa-bcc1-340949f2be38)
+
 After that, Manpreet Singh delivered a wonderful lecture on fitness. As engineering students, he emphasized that we must take care of our health. We even went up on stage to do push-ups, which was one of the most exciting moments of the day! We asked him several questions about fitness, and he answered each one kindly and helpfully.
+
+
 
 Later, a 3rd-year NCC student gave a lecture about the value of NCC. Then, Brigadier P.S. Cheema Sir received a warm welcome from us. He is a Lieutenant General, and it was inspiring to see him in full uniform. He delivered a powerful and valuable speech, and we even participated in some brain games during his session. We listened carefully and enjoyed it thoroughly.
 
