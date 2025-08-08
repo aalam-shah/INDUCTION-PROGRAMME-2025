@@ -82,14 +82,26 @@ Later, a 3rd-year NCC student gave a lecture about the value of NCC. Then, Briga
 After that, we had our lunch break and enjoyed eating together. Then I went to the admission cell to apply for my ID card.
 It was truly a great and memorable day
 
-DAY 6 ( Aug 07,2025)
+## DAY 6 ( Aug 07,2025)
 
 I was ready for college and entered the classroom according to our schedule. It was our first P2P (peer-to-peer) lecture, and the topic was “Basics of C++”, delivered by our volunteer instructors. 
 We learned new concepts related to coding, and it was my first experience writing and running my own code in C++. It felt exciting and motivating. We were also given some homework to practice what we learned.
 
 The second lecture was conducted by Nisha ma’am. She conducted our class on communication skills. During this session, we all introduced ourselves one by one at the front of the class. We learned the differences between similar words, such as aesthetic vs. classic and hearing vs. listening. We also shared our strengths and weaknesses with her, which helped us reflect on ourselves and improve our speaking confidence. 
-
 After the lecture ended, we took our lunch break.
+
+Then Dr. Lakhvir Singh Khana delivered his lecture to us.It gave us the job from the activity in CML, he told us that CML meant to give birth to a new and vocational mind so that the mind of the student's mind is the best and rebuilding of the student's mind.
+
+Dr.Jasvir Singh Grewal dropped his lecture on the stage they told us about the value of trees and the hereditary effects of plastic in our daily life. A Keertani Jatha was formed, and they recited keertan, which we listened to with a spiritual mindset. They also organized some games like basketball and conducted fun activities along with it. We were informed about the purpose of NSS (National Service Scheme) . They explained that it's not just about planting trees, but about creating awareness among people regarding the importance of trees and nature. The session highlighted the benefits of tree plantation ,how it helps improve the environment, and how it connects us more deeply to nature. They also discussed both the positive and negative impacts human actions have on the environment, urging us to take responsibility for protecting it.
+
+## DAY 7 ( Aug 08,2025)
+
+We were ready for college and entered as per our schedule. The first lecture was taken by Prof. Harnam Singh, and it was about Engineering Drawings. We learned a lot ,it seemed complicated at first, but we managed to understand it well.
+
+Prof. Sandeep Kaur Gill taught us Differential Equations in a very simple and easy-to-understand way. She also helped us recall important concepts from our 12th-grade Math.
+
+The next session was conducted by our volunteers. We sang songs and introduced ourselves to each other. It was a fun and interactive class where we also asked questions about our first year in college.
+It was truly a day full of learning and engagement. I attended all my classes and later returned home with new knowledge and great experiences.
 
 
 
