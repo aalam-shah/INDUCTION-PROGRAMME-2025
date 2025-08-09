@@ -95,7 +95,11 @@ After the lecture ended, we took our lunch break.
 
 Then Dr. Lakhvir Singh Khana delivered his lecture to us.It gave us the job from the activity in CML, he told us that CML meant to give birth to a new and vocational mind so that the mind of the student's mind is the best and rebuilding of the student's mind.
 
-Dr.Jasvir Singh Grewal dropped his lecture on the stage they told us about the value of trees and the hereditary effects of plastic in our daily life. A Keertani Jatha was formed, and they recited keertan, which we listened to with a spiritual mindset. They also organized some games like basketball and conducted fun activities along with it. We were informed about the purpose of NSS (National Service Scheme) . They explained that it's not just about planting trees, but about creating awareness among people regarding the importance of trees and nature. The session highlighted the benefits of tree plantation ,how it helps improve the environment, and how it connects us more deeply to nature. They also discussed both the positive and negative impacts human actions have on the environment, urging us to take responsibility for protecting it.
+Dr.Jasvir Singh Grewal dropped his lecture on the stage they told us about the value of trees and the hereditary effects of plastic in our daily life. A Keertani Jatha was formed, and they recited keertan, which we listened to with a spiritual mindset. 
+
+![Image](https://github.com/user-attachments/assets/9fa7bee9-c4bf-4d57-95b1-16d2d45380e8)
+
+They also organized some games like basketball and conducted fun activities along with it. We were informed about the purpose of NSS (National Service Scheme) . They explained that it's not just about planting trees, but about creating awareness among people regarding the importance of trees and nature. The session highlighted the benefits of tree plantation ,how it helps improve the environment, and how it connects us more deeply to nature. They also discussed both the positive and negative impacts human actions have on the environment, urging us to take responsibility for protecting it.
 
 ## DAY 7 ( Aug 08,2025)
 
