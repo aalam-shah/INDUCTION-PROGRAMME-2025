@@ -8,7 +8,7 @@
 
 On this day, we were very excited about our college. We went to the college's Gurudwara Sahib, where we saw the Kirtani Jatha. They recited hymns, and we all listened with deep spiritual focus. After the completion of the kirtan, we received deg.
 
-![Image](https://github.com/user-attachments/assets/7b825fcb-91d4-4b63-9367-e02d8f27e291)
+![Image](https://github.com/user-attachments/assets/c99a985d-0673-414b-b0ab-9249dee6138b)
 
 Then we moved toward the main gate and headed to the college auditorium. There, we received a warm welcome and a welcome kit from the volunteers. We saw the front view of our college, which looked classy and pristine.
 We entered the auditorium and sat in our seats according to our branches. The first lecture was delivered by Dr. Harpreet Kaur (HoD Ma’am), and we listened attentively. Then, the chief guest the Chief Minister of the Municipal Corporation came on stage and gave us a valuable and inspiring speech about living a meaningful life.
