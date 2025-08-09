@@ -95,6 +95,8 @@ After the lecture ended, we took our lunch break.
 
 Then Dr. Lakhvir Singh Khana delivered his lecture to us.It gave us the job from the activity in CML, he told us that CML meant to give birth to a new and vocational mind so that the mind of the student's mind is the best and rebuilding of the student's mind.
 
+![Image](https://github.com/user-attachments/assets/a4bfed78-cb6d-4e98-a56f-ef85919f9424)
+
 Dr.Jasvir Singh Grewal dropped his lecture on the stage they told us about the value of trees and the hereditary effects of plastic in our daily life. A Keertani Jatha was formed, and they recited keertan, which we listened to with a spiritual mindset. 
 
 ![Image](https://github.com/user-attachments/assets/9fa7bee9-c4bf-4d57-95b1-16d2d45380e8)
