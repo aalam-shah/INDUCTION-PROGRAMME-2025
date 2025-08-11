@@ -112,5 +112,23 @@ Prof. Sandeep Kaur Gill taught us Differential Equations in a very simple and ea
 The next session was conducted by our volunteers. We sang songs and introduced ourselves to each other. It was a fun and interactive class where we also asked questions about our first year in college.
 It was truly a day full of learning and engagement. I attended all my classes and later returned home with new knowledge and great experiences.
 
+## DAY 8 (Aug 11,2025)
 
+Here’s the *corrected and polished version* of your Day 8 entry:
+
+---
+
+*Day 8 (August 11, 2025)*
+
+Finally, our class schedule was set, and we could now attend our lectures systematically.
+
+Our first lecture was conducted by Professor Sandeep Kaur Gill and it was about Maths. She explained the exam structure, marks distribution, and the syllabus. We also recalled some previous math concepts. The class ended smoothly.
+
+The next lecture was a P2P session taken by our volunteers. We learned more about C++ programming and grasped new information clearly.
+
+After that, we had our lunch break , and everyone enjoyed their meal together.
+
+Post-break, we returned to class as per the schedule. The next session was on Programming for Problem Solving, taught by Professor Jaswant Singh Taur. It was a highly engaging lecture. We listened attentively and understood the basics of “What is a computer"?. We were also provided with our own computer systems for hands-on practice.
+
+The final lecture of the day was conducted by our HoD ma’am. We truly enjoyed this class because of her *unique and engaging teaching style. She taught us about Electromagnetic Waves in a very interesting way. Later we have moved to our homes. 
 
