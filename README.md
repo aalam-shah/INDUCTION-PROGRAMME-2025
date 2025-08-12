@@ -114,12 +114,6 @@ It was truly a day full of learning and engagement. I attended all my classes an
 
 ## DAY 8 (Aug 11,2025)
 
-Here’s the *corrected and polished version* of your Day 8 entry:
-
----
-
-*Day 8 (August 11, 2025)*
-
 Finally, our class schedule was set, and we could now attend our lectures systematically.
 
 Our first lecture was conducted by Professor Sandeep Kaur Gill and it was about Maths. She explained the exam structure, marks distribution, and the syllabus. We also recalled some previous math concepts. The class ended smoothly.
@@ -132,3 +126,14 @@ Post-break, we returned to class as per the schedule. The next session was on Pr
 
 The final lecture of the day was conducted by our HoD ma’am. We truly enjoyed this class because of her *unique and engaging teaching style. She taught us about Electromagnetic Waves in a very interesting way. Later we have moved to our homes. 
 
+## DAY 9 (Aug 12,2025)
+
+We were ready for college and attended our first class of the day. The lecture was on Economics, conducted by Professor Puran Singh. He taught us about demand, supply, quantity, and price. It was an amazing and engaging session.
+
+The next class was a Physics lecture by Dr. Randhir Singh , where we learned about Einstein’s theories and the basics of lasers.
+
+After that, we moved to the second floor for our Engineering Drawing and Graphics class. This class felt completely different, as we learned how to form alphabets on graph sheets in a proper and technical way.
+
+By then, break time had arrived, and we all enjoyed our lunch together.
+Today was our first workshop , where we learned carpentry work. We were introduced to different types of wood, their properties , and their uses in daily life. 
+Later, we returned home with new experiences and knowledge.
