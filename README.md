@@ -142,6 +142,8 @@ Later, we returned home with new experiences and knowledge.
 
 This was my 10th day, even though it could have been a holiday. Our first lecture was taken by Professor Puran Singh. We learned about graphs in the economic system.
 Later, we attended a mathematics class where we learned about partial differential equations. Since maths is my favorite subject, I really enjoyed the session.
+![Image](https://github.com/user-attachments/assets/8dbfbe2f-ccf4-41e8-8fdf-3d015dffe370)
+
 After that, we had our physics lab class, where we determined the value of Planck’s constant using an instrument.
 
 Then break time arrived, and we enjoyed lunch with our friends. After lunch, we explored our campus for a while and attended the next session, which was our mentoring class. In that session, we understood the value of our branch and its importance.
