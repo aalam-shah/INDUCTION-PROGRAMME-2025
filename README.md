@@ -137,3 +137,17 @@ After that, we moved to the second floor for our Engineering Drawing and Graphic
 By then, break time had arrived, and we all enjoyed our lunch together.
 Today was our first workshop , where we learned carpentry work. We were introduced to different types of wood, their properties , and their uses in daily life. 
 Later, we returned home with new experiences and knowledge.
+
+## Day 10 (August 13, 2025)
+
+This was my 10th day, even though it could have been a holiday. Our first lecture was taken by Professor Puran Singh. We learned about graphs in the economic system.
+Later, we attended a mathematics class where we learned about partial differential equations. Since maths is my favorite subject, I really enjoyed the session.
+After that, we had our physics lab class, where we determined the value of Planck’s constant using an instrument.
+
+Then break time arrived, and we enjoyed lunch with our friends. After lunch, we explored our campus for a while and attended the next session, which was our mentoring class. In that session, we understood the value of our branch and its importance.
+
+Later, I attended an extra tutorial class for mathematics, simply because I’m interested in the subject.
+Finally, I went home with a sense of new learning and satisfaction.
+
+
+
