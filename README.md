@@ -142,6 +142,7 @@ Later, we returned home with new experiences and knowledge.
 
 This was my 10th day, even though it could have been a holiday. Our first lecture was taken by Professor Puran Singh. We learned about graphs in the economic system.
 Later, we attended a mathematics class where we learned about partial differential equations. Since maths is my favorite subject, I really enjoyed the session.
+
 ![Image](https://github.com/user-attachments/assets/8dbfbe2f-ccf4-41e8-8fdf-3d015dffe370)
 
 After that, we had our physics lab class, where we determined the value of Planck’s constant using an instrument.
@@ -150,6 +151,19 @@ Then break time arrived, and we enjoyed lunch with our friends. After lunch, we 
 
 Later, I attended an extra tutorial class for mathematics, simply because I’m interested in the subject.
 Finally, I went home with a sense of new learning and satisfaction.
+
+## Day 11 (August 14, 2025)
+
+We were ready for college, and it was raining that day. We attended our first lecture of Physics, which was about Einstein’s coefficients.
+
+Later, we went to our carpentry workshop, where we made a window template
+. After that, we had our mathematics tutorial class ,in which we solved several questions and problems.
+![Image](https://github.com/user-attachments/assets/885fc7b8-5965-44ab-8b90-40ff7cb926a9)
+
+After completing the session, we had our lunch break.
+Our next lecture was on Programming for Problem Solving (PPS), taught by Prof. Jaswant Singh. It was a wonderful class because we were truly interested in the topic.
+After the lecture ended, we returned home.
+
 
 
 
