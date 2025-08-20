@@ -105,10 +105,6 @@ They also organized some games like basketball and conducted fun activities alon
 
 ## DAY 7 ( Aug 08,2025)
 
-We were ready for college and entered as per our schedule. The first lecture was taken by Prof. Harnam Singh, and it was about Engineering Drawings. We learned a lot ,it seemed complicated at first, but we managed to understand it well.
-
-Prof. Sandeep Kaur Gill taught us Differential Equations in a very simple and easy-to-understand way. She also helped us recall important concepts from our 12th-grade Math.
-
 The next session was conducted by our volunteers. We sang songs and introduced ourselves to each other. It was a fun and interactive class where we also asked questions about our first year in college.
 It was truly a day full of learning and engagement. I attended all my classes and later returned home with new knowledge and great experiences.
 
