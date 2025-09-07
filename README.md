@@ -161,5 +161,13 @@ Our next lecture was on Programming for Problem Solving (PPS), taught by Prof. J
 After the lecture ended, we returned home.
 
 
+## Day 12 ( August 30,2025)
+
+This was a day of full enjoyment. We got ready for college and reached the auditorium as per our schedule. The first lecture was taken by Dr. Arshdeep Singh, who is from PTU. He told us about the importance of the food we consume and how to balance our diet. The session covered various aspects of food.
+
+The next session was on "Science on Wheels," where many interesting science experiments were performed. It was engaging and enjoyable, and we had a great time. During break time, we relaxed and had lunch.
+
+Lastly, we had a session with the MAAC team, who guided us about our future beginnings. After the completion of this day
+we moved to our homes.
 
 
